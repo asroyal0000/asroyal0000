@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @asroyal0000
-- 👀 I’m interested in anime ,gaming , reading book , learning new things and anthing intreseting related to tech , science , engineering and more , i do also work out alittle
+- 👀 I’m interested in anime ,gaming , reading books , learning new things and anthing interesting related to tech , science , engineering and more , i do also work out alittle
 - 🌱 I’m currently learning to code but i want to prepare myself and im trying to figure out what approach i should take for ethical hacking / software engineering / cyber security/ software development
 - 💞️ I’m looking to collaborate on beginner level , or learning how , information on what has helped you when you started to code 
 - 📫 How to reach me email is asroyal0000@gmail.com
